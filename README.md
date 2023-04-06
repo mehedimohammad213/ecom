@@ -1,5 +1,5 @@
 Live Link ------->
-https://ecomm-1zeh.onrender.com/contact
+https://ecomm-1zeh.onrender.com/
 
 
 
